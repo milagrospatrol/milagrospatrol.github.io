@@ -4,12 +4,12 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Jual Air Kesehatan Milagros (Air Sehat Alkali), Desa Patrol Lor, Kecamatan Patrol, Kabupaten Indramayu 45258
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+Menerima Pendaftaran Member Baru.
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[Whatsapp 089674198193](mailto:email@domain.com)
