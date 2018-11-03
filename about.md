@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Jual Air Kesehatan Milagros (Air Sehat Alkali).
+Jual Air Kesehatan Milagros (Air Sehat Alkali). Milagros dikenal air ajaib setara air zam-zam yang dapat menyembuhkan segala macam penyakit.
 
 Alamat: Desa Patrol Lor RT 03/01, Kecamatan Patrol, Kabupaten Indramayu 45258
 
