@@ -5,7 +5,7 @@ title: Apa itu air ajaib MILAGROS?
 
 MILAGROS adalah Air "Three in One", yakni air dengan pH > 8 memiliki kandungan Anti-Oksidan dan memiliki Energi Skalar.
 
-![produk]({{ site.baseurl }}/images/produk.jpg)
+![alt text](https://raw.githubusercontent.com/milagrospatrol/milagrospatrol.github.io/master/images/produk.jpg "produk")
 
 #### Apa itu Air Alkali?
 Istilah Alkaline atau Alkali berasal dari bahasa Arab, yakni " Al-Qoli ", yaitu unsur ion garam yang terkandung dalam elemen logam basa. Air Alkali atau Air Basa berfungsi sebagai penyeimbang kelebihan asam pada tubuh yang jika dikonsumsi secara teratur akan mendatangkan efek penyembuhan bagi berbagai macam penyakit.
