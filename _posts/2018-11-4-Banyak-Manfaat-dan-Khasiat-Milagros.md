@@ -14,6 +14,8 @@ Berikut penjelasannya:
 - Anti-Oksidan
 - Energi Skalar
 
+![alt text](https://raw.githubusercontent.com/milagrospatrol/milagrospatrol.github.io/master/images/khasiat.jpg "khasiat-milagros")
+
 #### Manfaat Milagros untuk Kesehatan
 
 Khasiat milagros untuk kesehatan sudah tidak diragukan lagi. 
