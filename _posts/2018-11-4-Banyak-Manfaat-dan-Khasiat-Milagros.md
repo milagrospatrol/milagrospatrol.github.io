@@ -10,10 +10,12 @@ Tidak hanya untuk kesehatan, melainkan juga bermanfaat untuk bagian luar tubuh t
 Sebelum membahas apa saja manfaat setelah mengkonsumsi Milagros, ada baiknya ketahui terlebih dulu apa saja kandungan air milagros. 
 Berikut penjelasannya:
 
-- Super Stabil Alkalin dengan pH 9,8
-- Anti-oksidan (-350mV)
-- Oksigen dengan molekul air (5-6)
+- Alkali/ air basa dengan pH > 8
+- Anti-Oksidan
+- Energi Skalar
 
 #### Manfaat Milagros untuk Kesehatan
 
-Khasiat milagros untuk kesehatan sudah tidak diragukan lagi. Sudah banyak yang menggunakan air alkalin untuk meningkatkan kesehatan mereka. Mulai dari anak-anak sampai orang lanjut usai bisa memanfaatkannya agar hidup lebih lama. Inilah manfaatnya :
+Khasiat milagros untuk kesehatan sudah tidak diragukan lagi. 
+Sudah banyak yang menggunakan air alkali untuk meningkatkan kesehatan mereka. 
+Mulai dari anak-anak sampai orang lanjut usai bisa memanfaatkannya agar hidup lebih lama. Inilah manfaatnya :
