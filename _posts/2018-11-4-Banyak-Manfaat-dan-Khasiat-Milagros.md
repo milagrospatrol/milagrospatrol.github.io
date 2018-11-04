@@ -17,5 +17,5 @@ Berikut penjelasannya:
 #### Manfaat Milagros untuk Kesehatan
 
 Khasiat milagros untuk kesehatan sudah tidak diragukan lagi. 
-Sudah banyak yang menggunakan air alkali untuk meningkatkan kesehatan mereka. 
-Mulai dari anak-anak sampai orang lanjut usai bisa memanfaatkannya agar hidup lebih lama. Inilah manfaatnya :
+Salah satunya untuk meningkatkan kesehatan juga mampu menyembuhkan berbagai penyakit.
+Berikut adalah manfaat Milagros untuk kesehatan:
