@@ -22,3 +22,13 @@ Kota Makassar, Sulawesi Selatan |17 September 2018
 #kaki sering kesemutan
 
 ***
+
+#### Arif Budiman 
+
+Kota Jakarta Pusat, DKI Jakarta |16 September 2018
+
+> Setelah sy minum satu botol sy mengalami detok, kepala sy sakit luarbiasa dan setelah sy mengkonsumsi sebanyak empat botol sakit di kepala sy mulai pulih, terimakasih ya allah melalui milagros ini penyakit sy mulai sembuh.
+
+#DIabetes darah tinggi vertigo asam urat
+
+***
