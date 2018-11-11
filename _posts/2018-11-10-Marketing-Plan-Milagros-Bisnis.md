@@ -3,7 +3,9 @@ layout: post
 title: Marketing Plan Bisnis Milagros | WA 089674198193
 ---
 
-Penting bagi mitra atau member bisnis Milagros termasuk Anda yang mungkin baru ingin menjalani bisnis ini bahwa ada baiknya untuk memahami betul bagaimana dan seperti apa marketing plan dari bisnis Milagros ini, karena mengingat marketing plan tersebut selain sebagai panduan juga merupakan acuan atau pedoman agar dalam menetapkan target-target yang ingin dicapai menjadi terukur dan terarah.
+Penting bagi mitra atau member bisnis Milagros termasuk Anda yang mungkin baru ingin menjalani bisnis ini bahwa ada baiknya untuk memahami betul bagaimana dan seperti apa marketing plan dari bisnis Milagros ini, 
+
+karena mengingat marketing plan tersebut selain sebagai panduan juga merupakan acuan atau pedoman agar dalam menetapkan target-target yang ingin dicapai menjadi terukur dan terarah.
 
 Tanpa memahami marketing plannya, seperti yang sudah disebutkan sebelumnya selain tidak akan memiliki arah dalam menjalankannya, juga tidak akan memiliki motivasi yang cukup kuat agar berhasil dan sukses dalam menjalankan bisnis Milagros ini.
 
@@ -118,26 +120,26 @@ Bonus ini merupakan sumber passive income lain bagi Anda yang Anda peroleh ketik
 
 ![alt text](https://milagros.langsungaction.com/wp-content/uploads/2018/03/bonus-reward.jpg "bonus-reward")
 
-5. Peringkat & leadership
+5. Peringkat leadership
 
-Peringkat dan leadership pada marketing plan bisnis Milagros di bagi dalam 6 kelompok, yakni sebagai berikut:
+Peringkat leadership pada marketing plan bisnis Milagros di bagi menjadi 6, yakni sebagai berikut:
 
-- Leader; Untuk mencapai posisi ini Anda harus memiliki minimal 150 HU dengan posisi 75 kiri & 75 kanan.
+- Leader; Untuk mencapai posisi ini Anda memiliki minimal 150 HU dengan posisi 75 kiri & 75 kanan.
 
-- Core Leader; Untuk mencapai posisi ini Anda harus memiliki minimal 500 HU dengan posisi 250 kiri & 250 kanan.
+- Core Leader; Untuk mencapai posisi ini Anda memiliki minimal 500 HU dengan posisi 250 kiri & 250 kanan.
 
-- Leader Club; Untuk mencapai posisi ini Anda harus memiliki minimal 2.050 HU dengan posisi 1.025 kiri & 1.025 kanan.
+- Leader Club; Untuk mencapai posisi ini Anda memiliki minimal 2.050 HU dengan posisi 1.025 kiri & 1.025 kanan.
 
-- Executive Leader; Untuk mencapai posisi ini Anda harus memiliki minimal 8.000 HU dengan posisi 4.000 kiri & 4.000 kanan.
+- Executive Leader; Untuk mencapai posisi ini Anda memiliki minimal 8.000 HU dengan posisi 4.000 kiri & 4.000 kanan.
 
-- Manager; Untuk mencapai posisi ini Anda harus memiliki minimal 20.000 HU dengan posisi 10.000 kiri & 10.000 kanan.
+- Manager; Untuk mencapai posisi ini Anda memiliki minimal 20.000 HU dengan posisi 10.000 kiri & 10.000 kanan.
 
-- Director; Untuk mencapai posisi ini Anda harus memiliki minimal 150.000 HU dengan posisi 75.000 kiri & 75.000 kanan.
+- Director; Untuk mencapai posisi ini Anda memiliki minimal 150.000 HU dengan posisi 75.000 kiri & 75.000 kanan.
 
-Jumlah HU di atas tidak harus hasil sponsorisasi Anda sendiri, bisa berasal dari limpahan sponsor, limpahan upline, ataupun perkembanan downline Anda..
+Kabar baiknya, jumlah HU di atas tidak harus hasil sponsorisasi Anda sendiri, bisa berasal dari limpahan sponsor, limpahan upline, ataupun perkembanan downline Anda.
 
-Dan sebagaimana diketahui, bahwa seorang mitra Milagros bisa memiliki maksimal 7 HU. Oleh karena itu jumlah mitra yang diperlukan untuk memenuhi persyaratan jumlah HU diatas akan jauh lebih sedikit. Sehingga Anda tidak perlu merasa pesimis dalam memenuhinya.
+Dan sebagaimana diketahui, bahwa seorang mitra Milagros bisa memiliki maksimal 7 HU. Oleh karena itu jumlah mitra yang diperlukan untuk memenuhi persyaratan jumlah HU diatas akan jauh lebih mudah untuk mencapainya. Sehingga Anda akan optimis dalam mengembangkan bisnis Ana ini.
 
-Khusus bagi Anda yang belum menjadi mitra, mari manfaatkan porensi bisnis Milagros ini.
+Khusus bagi Anda yang belum menjadi mitra, mari manfaatkan segala potensi di bisnis Milagros ini.
 
-Demikian gambaran ringkas dari marketing plan bisnis Milagros ini. Semoga bermanfaat.
+Demikian gambaran ringkas dari marketing plan bisnis Milagros ini dan semoga bermanfaat.
