@@ -46,9 +46,13 @@ Bonus ini merupakan sumber passive income lain bagi Anda yang Anda peroleh ketik
 
 - Bonus Jaringan
 
-  1. Posisi Leader :
+  1. Posisi Leader:
+  
   – Syarat jumlah mitra : 75:75
+  
   – Omset grup : 25 RO
+  
   – Komisi : Rp 12.500/Dus
+  
   – Bonus minimum yang akan diterima = 25 x Rp 12.500 = Rp 375.000
 
