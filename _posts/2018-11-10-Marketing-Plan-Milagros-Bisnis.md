@@ -55,4 +55,89 @@ Bonus ini merupakan sumber passive income lain bagi Anda yang Anda peroleh ketik
   – Komisi : Rp 12.500/Dus
   
   – Bonus minimum yang akan diterima = 25 x Rp 12.500 = Rp 375.000
+  
+  2. Posisi Core Leader:
+  
+  – Syarat jumlah mitra : 250:250
+  
+  – Omset grup : 75 RO
+  
+  – Komisi : Rp 25.000/Dus
+  
+  – Bonus minimum yang akan diterima = 75 x Rp 25.000 = Rp 2.250.000
+  
+  3. Posisi Leader Club:
+  
+  – Syarat jumlah mitra : 1.025:1.025
+  
+  – Omset grup : 350 RO
+  
+  – Komisi : Rp 37.500/Dus
+  
+  – Bonus minimum yang akan diterima = 350 x Rp 37.500 = Rp 15.750.000
+  
+  4. Posisi Executive Leader:
+  
+  – Syarat jumlah mitra : 4.000:4.000
+  
+  – Omset grup : 1250 RO
+  
+  – Komisi : Rp 45.000/Dus
+  
+  – Bonus minimum yang akan diterima = 1250 x Rp 45.000 = Rp 56.250.000
+  
+  5. Posisi Manager:
+  
+  – Syarat jumlah mitra : 10.000:10.000
+  
+  – Omset grup : 3.500 RO
+  
+  – Komisi : Rp 50.000/Dus
+  
+  – Bonus minimum yang akan diterima = 3.500 x Rp 50.000 = Rp 175.000.000
+  
+  6. Posisi Direktur:
+  
+  – Syarat jumlah mitra : 75.000:75.000
+  
+  – Omset grup : 25.000 RO
+  
+  – Komisi : Rp 55.000/Dus
+  
+  – Bonus minimum yang akan diterima = 25.000 x Rp 55.000 = Rp 1,375 Milyar
+  
+- Bonus Kepemimpinan
 
+![alt text](https://raw.githubusercontent.com/milagrospatrol/milagrospatrol.github.io/master/images/M-1.jpg "milagros")
+
+- Bonus Sharing omzet
+
+![alt text](https://raw.githubusercontent.com/milagrospatrol/milagrospatrol.github.io/master/images/M-1.jpg "milagros")
+
+- Bonus reward
+
+![alt text](https://raw.githubusercontent.com/milagrospatrol/milagrospatrol.github.io/master/images/M-1.jpg "milagros")
+
+5. Peringkat & leadership
+
+Peringkat dan leadership pada marketing plan bisnis Milagros di bagi dalam 6 kelompok, yakni sebagai berikut:
+
+- Leader; Untuk mencapai posisi ini Anda harus memiliki minimal 150 HU dengan posisi 75 kiri & 75 kanan.
+
+- Core Leader; Untuk mencapai posisi ini Anda harus memiliki minimal 500 HU dengan posisi 250 kiri & 250 kanan.
+
+- Leader Club; Untuk mencapai posisi ini Anda harus memiliki minimal 2.050 HU dengan posisi 1.025 kiri & 1.025 kanan.
+
+- Executive Leader; Untuk mencapai posisi ini Anda harus memiliki minimal 8.000 HU dengan posisi 4.000 kiri & 4.000 kanan.
+
+- Manager; Untuk mencapai posisi ini Anda harus memiliki minimal 20.000 HU dengan posisi 10.000 kiri & 10.000 kanan.
+
+- Director; Untuk mencapai posisi ini Anda harus memiliki minimal 150.000 HU dengan posisi 75.000 kiri & 75.000 kanan.
+
+Jumlah HU di atas tidak harus hasil sponsorisasi Anda sendiri, bisa berasal dari limpahan sponsor, limpahan upline, ataupun perkembanan downline Anda..
+
+Dan sebagaimana diketahui, bahwa seorang mitra Milagros bisa memiliki maksimal 7 HU. Oleh karena itu jumlah mitra yang diperlukan untuk memenuhi persyaratan jumlah HU diatas akan jauh lebih sedikit. Sehingga Anda tidak perlu merasa pesimis dalam memenuhinya.
+
+Khusus bagi Anda yang belum menjadi mitra, mari manfaatkan porensi bisnis Milagros ini.
+
+Demikian gambaran ringkas dari marketing plan bisnis Milagros ini. Semoga bermanfaat.
