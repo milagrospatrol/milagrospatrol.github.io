@@ -43,3 +43,12 @@ Bonus inipun menjadi sumber passive income Anda. Selama jaringan Anda berkembang
 4. Bonus Kepemimpinan
 
 Bonus ini merupakan sumber passive income lain bagi Anda yang Anda peroleh ketika Anda mencapai posisi leader ke atas. Bonus leadership tersebut meliputi:
+
+- Bonus Jaringan
+
+  1. Posisi Leader :
+  – Syarat jumlah mitra : 75:75
+  – Omset grup : 25 RO
+  – Komisi : Rp 12.500/Dus
+  – Bonus minimum yang akan diterima = 25 x Rp 12.500 = Rp 375.000
+
