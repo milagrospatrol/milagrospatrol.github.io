@@ -40,3 +40,6 @@ Bonus pasangan ini bisa merupakan salah satu sumber passive income Anda. Selama 
 
 Bonus inipun menjadi sumber passive income Anda. Selama jaringan Anda berkembang dan terjadi pasangan pada mitra Anda, maka Anda mendapatkan bonus ini.
 
+4. Bonus Kepemimpinan
+
+Bonus ini merupakan sumber passive income lain bagi Anda yang Anda peroleh ketika Anda mencapai posisi leader ke atas. Bonus leadership tersebut meliputi:
