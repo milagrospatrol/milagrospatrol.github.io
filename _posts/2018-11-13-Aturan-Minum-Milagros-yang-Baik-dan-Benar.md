@@ -3,6 +3,8 @@ layout: post
 title: Marketing Plan Bisnis Milagros | WA 089674198193
 ---
 
+![alt text](https://milagros.langsungaction.com/wp-content/uploads/2018/03/bonus-sponsor2.jpg "aturan-minum")
+
 Aturan takaran untuk minum Milagros ini disampaikan dan disarankan oleh dr. Seno Purnomo sebagai berikut:
 
 Takaran sekali minum air dalam keadaan normal adalah 3 – 4 teguk (tutup botol ungu).. 
@@ -21,6 +23,11 @@ Bagi yang belum pernah minum dari air minum ALKALI Milagros di anjurkan untuk mi
 
 Kandungan milagros mendukung penggantian cairan tersebut, karna salah satu fungsi milagros adalah meregenerasi sel dan mengatur organ2 tubuh agar tetap dalam kondisi 100%.. Untuk itu saya sarankan minum “air yang baik ini setiap pagi”..!!!
 
-![alt text](https://milagros.langsungaction.com/wp-content/uploads/2018/03/bonus-sponsor2.jpg "bonus-sponsor2")
+Baca juga [Terapi air Milagros](https://www.airterapikesehatanow-mret.com/2017/09/bagaimanakah-sebaiknya-terapi-minum-air.html).
 
-Ilustrasi
+Demikian informasi singkat aturan takaran minum Milagros yang baik dan benar, semoga bermanfaat.
+
+Salam Sehat dan Sukses.
+
+Agen Bisnis Milagros Patrol Indramayu | CP. 089 674 198 193
+
