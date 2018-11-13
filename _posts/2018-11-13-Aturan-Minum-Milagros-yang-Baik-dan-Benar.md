@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Marketing Plan Bisnis Milagros | WA 089674198193
+title: Aturan Minum Milagros yang Baik dan Benar | WA 089674198193
 ---
 
 ![alt text](https://raw.githubusercontent.com/milagrospatrol/milagrospatrol.github.io/master/images/aturan-minum.jpg "aturan-minum")
