@@ -29,5 +29,5 @@ Demikian informasi singkat aturan takaran minum Milagros yang baik dan benar, se
 
 Salam Sehat dan Sukses.
 
-Agen Bisnis Milagros Patrol Indramayu | CP. 089 674 198 193
+Agen Bisnis Milagros Patrol Indramayu, CP. 089 674 198 193
 
