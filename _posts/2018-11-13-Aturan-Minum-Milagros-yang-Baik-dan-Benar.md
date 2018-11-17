@@ -5,7 +5,7 @@ title: Aturan Minum Milagros yang Baik dan Benar | WA 089674198193
 
 ![alt text](https://raw.githubusercontent.com/milagrospatrol/milagrospatrol.github.io/master/images/aturan-minum.jpg "aturan-minum")
 
--> Aturan takaran untuk minum Milagros ini disampaikan dan dianjurkan oleh dr. Seno Purnomo sebagai berikut: <-
+Aturan takaran untuk minum Milagros ini disampaikan dan dianjurkan oleh dr. Seno Purnomo sebagai berikut:
 
 Takaran sekali minum air dalam keadaan normal adalah 3 – 4 teguk (tutup botol ungu).. 
 
